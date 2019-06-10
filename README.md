@@ -1,2 +1,2 @@
 # projectX
-- Hi~I am Fanny~
+- Hi¡AI am Fanny~
